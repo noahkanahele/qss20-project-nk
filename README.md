@@ -1,1 +1,0 @@
-# qss20-project-nk
